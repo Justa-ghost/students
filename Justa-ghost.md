@@ -1,0 +1,1 @@
+I am Dustin Gay. I have no particular interest in a specific area of compuer science, but I would love to be as close to music technology as possible in the future. I am a singer-songwriter, electronic music artist, but as I know how much luck is needed to succeed in the music industry, I decided to learn computer science to give myself more options.
